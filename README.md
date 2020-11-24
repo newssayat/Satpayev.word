@@ -1,0 +1,1 @@
+# Satpayev.word
